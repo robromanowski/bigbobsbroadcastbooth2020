@@ -22,8 +22,8 @@ https://www.270towin.com/maps/yeWKd
 >Note:
 >For Florida Decision: 
 >https://www.270towin.com/maps/kRzYn
-
-Trump 218 goes to 247.
+>Trump 218 votes goes to 247, Biden still has enough anyways at 270.
+>So for this one, doesn't matter if Trump gets FL (since Biden had PA mainly in this case).
 
 ### 2. The Biden Map - Somehow he gets Florida and PA - more just for fun
 
