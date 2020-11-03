@@ -9,11 +9,11 @@ but will be soon!
 :thumbsup:
 
 
-General Idea:
+**General Idea:**
 
-1. First section will be #Maps (showing possible models/outcomes) (not all of them included tho :sad:)
+**1. First section will be #Maps (showing possible models/outcomes) (not all of them included tho :sad:)**
 
-2. Live updates/tidbits if possible
+**2. Live updates/tidbits if possible**
 
 # Maps
 
