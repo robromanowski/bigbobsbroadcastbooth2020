@@ -10,7 +10,7 @@ but will be soon!
 
 ---
 
-###**General Idea:**
+### **General Idea:**
 
 **0. My take (let's hope it ages like a fine Zamorakian wine!!) - aka the OFFICIAL TOO EARLY BBBB 2020 270TOWIN map.**
 
