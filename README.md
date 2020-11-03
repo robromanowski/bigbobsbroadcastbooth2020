@@ -8,6 +8,13 @@ but will be soon!
 
 :thumbsup:
 
+
+General Idea:
+
+1. First section will be #Maps (showing possible models/outcomes) (not all of them included tho :sad:)
+
+2. Live updates/tidbits if possible
+
 # Maps
 
 ### 1. More Neutral Map - Florida toss up - Biden gets PA, I think most of this could happen
@@ -39,3 +46,7 @@ Direct Link:
 https://www.270towin.com/maps/Q0dRk
 
 <div align="center"><a href="https://www.270towin.com/maps/Q0dRk"><img src="https://www.270towin.com/map-images/Q0dRk.png" width="800"></a><br><small><img style="vertical-align:middle;" src="https://www.270towin.com/uploads/3rd_party_270_30px.png" alt="" /> Click the map to create your own at <a href="https://www.270towin.com/maps/Q0dRk">270toWin.com</a></small></div>
+
+
+# OMG ITS HERE SECTION
+nothing yet :(
