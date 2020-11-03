@@ -11,7 +11,8 @@ but will be soon!
 ---
 
 **General Idea:**
-**0. My take (let's hope it ages like a fine Zamorakian wine!!) - aka the OFFICIAL TOO EARLY BBBB 2020 270TOWIN map.
+
+**0. My take (let's hope it ages like a fine Zamorakian wine!!) - aka the OFFICIAL TOO EARLY BBBB 2020 270TOWIN map.**
 
 **1. First section will be #Maps (showing possible models/outcomes) (not all of them included tho :sad:)**
 
