@@ -2,7 +2,11 @@
 BBBB 2020. Help us all.
 
 ## Under Construction
+not alot here yet.
 
+but will be soon!
+
+:thumbs:
 
 # Maps
 
