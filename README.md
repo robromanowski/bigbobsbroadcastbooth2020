@@ -65,4 +65,22 @@ https://www.270towin.com/maps/Q0dRk
 
 
 # 2. OMG ITS HERE SECTION
-nothing yet :(
+
+Updates from earlier than 5pm:
+- Not too much happened this early.
+- Noteworthy things:
+1. Florida past its 2016 vote total only a few hours into voting today (combined with early voting)
+2. That's a good sign, as generally more votes favor Dems.
+- Read a cool analysis on one county (Sumter - the villages (the old people) could show a lot tonight. It could:
+1. hint at Florida's result
+2. if we know Florida tonight we might have a better idea just after tonight
+
+5pm+ updates:
+- Exit polls came out. Economy is the biggest thing so far, not covid:
+1. does that spell bad for biden since trump is usually tied to economy - or does the economy in shambles mean its good for biden?
+2. nate silver harping on dont trust exit polls this year - is that denial? exit polls can be garbage so maybe it is true
+- we got nothing else so far so exit polls will clearly be overreacted too - it's the only droppings we've got
+- 538 is saying that florida GOP voting has seemed to slow down, maybe a good sign for dems there!
+
+6pm+ updates:
+not there yet :)
