@@ -6,7 +6,7 @@ not alot here yet.
 
 but will be soon!
 
-:thumbs:
+:thumbsup:
 
 # Maps
 
